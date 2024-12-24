@@ -11,5 +11,4 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: I’m from a village near Bidar and love solving complex problems with code!
 
